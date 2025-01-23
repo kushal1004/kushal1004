@@ -2,3 +2,6 @@
 - 👀 I’m interested in coding && playing cricket
 - 🌱 I’m currently a college student [B.Tech in Information Technology ]
 - 💞️ I’m looking to collaborate on [ time dependent]
+contact -
+E-mail : kushalsingha00@gmail.com
+mobile no.: 9339440674
