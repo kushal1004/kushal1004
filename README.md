@@ -1,6 +1,6 @@
 # 👋 Hi there, I'm Kushal Singha  
 
-🎓 **B.Tech in Information Technology** | 💻 Aspiring Software Developer | 🏏 Cricket Enthusiast  
+🎓 **B.Tech in Information Technology** | 💻 Aspiring Software Developer Intern At @Itobuz Tech | 🏏 Cricket Enthusiast  
 
 ---
 
